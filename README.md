@@ -1,1 +1,1 @@
-Skripsinya Abror  dibuat untuk menyelesaikan Tugas Skripsinya Abror, dengan tujuan untuk mendapatkan nilai A+ dengan gamenya "Skripsinya Anror". Diharapkan Skripsinya Abror dapat sesuai dengan ekspektasi dari Skripsinya Abror
+Skripsinya Abror  dibuat untuk menyelesaikan Tugas Skripsinya Abror, dengan tujuan untuk mendapatkan nilai A+ dengan gamenya "Skripsinya Abror". Diharapkan Skripsinya Abror dapat sesuai dengan ekspektasi dari Skripsinya Abror
